@@ -13,4 +13,3 @@ Estou interessado em aprender tudo sobre o github.
 No momento nao muito opq estamos fasendo o basico ainda mas sei que logo vou aprender muito.
 Sim sempre vou procurar colabora o maximo pussibvel.
 Para chegar ate mim é so me procurar no github que vc vau me encontrar.
-🥎
